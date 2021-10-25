@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marszawa
-- 👀 I’m interested in advocacy & comics
+- 👀 I’m interested in advocacy, philosophy & comics
 - 🌱 I’m currently learning design & illustration
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me marszawa@gmail.com
